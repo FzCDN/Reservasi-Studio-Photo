@@ -62,8 +62,8 @@ Disesuaikan dengan fitur frontend yang dipilih
 
 Hubungi kami untuk demo lengkap, konsultasi fitur, atau pemesanan:
 
-**WhatsApp:** [masukkan link WA di sini]  
-**Email:** [masukkan email jika ada]
+**WhatsApp:** [https://wa.me/62818834523]  
+**Email:** [sigitmencho@gmail.com]
 
 ---
 
